@@ -1,4 +1,4 @@
-**Team Code of Conduct Group 5**
+**Team Code of Conduct**
 
 **Goals/Philosophy**
 
